@@ -1,1 +1,1 @@
-# Sudu_Araliya_Supermarket
+# Supermarket
